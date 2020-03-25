@@ -1,1 +1,0 @@
-# vatadepalli.github.io
